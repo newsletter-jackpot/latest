@@ -1,0 +1,1 @@
+Trade winds are prevailing patterns of easterly surface winds found in the tropics, consistently blowing from east to west across the Earth.
