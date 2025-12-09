@@ -1,0 +1,1 @@
+Tyrannosaurus rex, which lived during the late Cretaceous period about 68 to 66 million years ago, was among the largest terrestrial carnivorous dinosaurs known to science.
