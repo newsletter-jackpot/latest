@@ -1,0 +1,1 @@
+Historical records and archaeological findings confirm that the Great Pyramid of Giza was once encased in smooth, polished Tura limestone that gleamed brightly under the sun.
