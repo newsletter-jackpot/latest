@@ -1,0 +1,1 @@
+From the 16th century until the early 20th century, corsets were widely worn across Europe to mold the waist and enhance the fashionable hourglass figure, profoundly influencing women's fashion silhouettes.
